@@ -1,4 +1,4 @@
-# 
+# Adobe Photoshop for macOS professional Extension: gradient maps & non-destructive editing is the best Adobe Photoshop for macOS extension, featuring gradient maps and
 
 
 
